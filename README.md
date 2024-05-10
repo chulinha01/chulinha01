@@ -10,6 +10,6 @@ meu nome é julia santana, mas meu apelido é chulinha
 
 ### Você pode entrar em contato comigo 📫
 
-alurastartestudante@email.com
+ju.santanadesousa@gmail.com
 
-@alurastartestudante
+@julisx_06
